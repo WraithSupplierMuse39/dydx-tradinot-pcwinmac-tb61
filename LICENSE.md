@@ -1,4 +1,4 @@
-# 
+# Ultimato dydx trading bot complementos for Mac OS | Profissional dydx trading bot complementos for PC Windows. Featuring API de exchange descentralizada and análise de momento — optimized for maximum performance.
 
 
 
